@@ -16,7 +16,7 @@ Horror about mental hospitals, lobotomy and hallucinations is my favorite. Hope 
 But I also know how to enjoy the cute and adorable sometimes! I love children's shows like chiikawa, kid vampire and sakura cardcaptor. I also really like rhythm games and haikyuu!! I mostly read yaoi, but i also enjoy yuri and hetero couples. Both healthy and unhealthy.
 ![](https://files.catbox.moe/o3rqp1.jpg)
 #### The Self-Centered Freak;
-I am Azul Ashengrotto's one and true lover and Tartaglia's real brother. I'm both Floyd Leech and Idia Shroud IRL. Sometimes more Floyd or more Idia, sometimes I achieve some clarity and become normal. I dont have a proper diagnosis, but there's something really wrong with me besides the autism and agoraphobia.
+I am Azul Ashengrotto's one and true lover and Tartaglia's real brother. I'm both Floyd Leech and Idia Shroud IRL. Sometimes more Floyd or more Idia, sometimes I achieve some clarity and become normal. I dont have a proper diagnosis, but there's something really wrong with me besides the autism, adhd and agoraphobia.
 
 ![](https://files.catbox.moe/0g590c.jpg)
 
