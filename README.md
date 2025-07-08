@@ -11,12 +11,12 @@ I've got this typing Quirk where I be randomly capitalizing some words, I tryna 
 ![](https://files.catbox.moe/4den24.jpg)
 I like a lot of medias, not hiperfixated on anything specific Atm, but I enjoy topics such as *deep Sea creatures* and *microscopic organisms*, also Vampires, death and ghosts, everything creepy is Beautiful and morbid topics like rot, death and Cannibalism are sweet.
 
-Horror about mental hospitals, lobotomy and hallucinations is my Favorite. I hope it's needless to say, I Love the ugly, the fearsome and the horrific. I love **Fran Bow**, **Hikaru ga Shinda Natsu**, **Ordem Paranormal**, **Interview With the Vampire** and some *found footage horror movies*. Characters with questionable morals are just my type!
+Horror about mental hospitals, lobotomy and hallucinations is my Favorite. I hope it's needless to say, I Love the ugly, the fearsome and the horrific. I love **Fran Bow**, **DHMIS**, **Hikaru ga Shinda Natsu**, **Ordem Paranormal**, **RTGO**, **IWTV** and some *found footage horror movies*. 
 
-But I also know how to enjoy the cute and adorable sometimes! I love children's shows like chiikawa, kid vampire and sakura cardcaptor. I also really like *rhythm games*, **Mob Psycho 100** and **Haikyuu**!! I *mostly* read yaoi, but i also enjoy *yuri* and *hetero* couples. Both healthy and unhealthy.
+But I also know how to enjoy the cute and adorable sometimes! I love children's shows like **Chiikawa**, **kid vampire** and **sakura cardcaptor**. I also really like *rhythm games*, **ganbare! Nakamura-kun**, **Saiki kusuo**, **Undertale**, **Deltarune**, **TWST** **mob Psycho 100** and **Haikyuu**!! I *mostly* read yaoi, But i also enjoy *yuri* and *hetero* couples. Both healthy and unhealthy.
 ![](https://files.catbox.moe/o3rqp1.jpg)
 #### The Self-Centered Freak;
-I am Azul Ashengrotto's one and true lover and Tartaglia's real brother. I'm both Floyd Leech and Idia Shroud IRL. Sometimes more Floyd or more Idia, sometimes I achieve some clarity and become normal. I dont have a proper diagnosis, but there's something really wrong with me besides the autism, and agoraphobia. Beware before interacting.
+I am Azul Ashengrotto's one and true lover and Tartaglia's real brother. I'm both Floyd Leech and Idia Shroud IRL. Sometimes more Floyd or more Idia, sometimes I achieve some clarity and become normal. I dont have a proper diagnosis, but there's something really wrong with me besides the **autism** and **agoraphobia**. (the autism Is diagnosed for Ya nosy mF.) I've got those Weird mood shifts i Can't control properly, Beware before interacting.
 
 ![](https://files.catbox.moe/0g590c.jpg)
 
