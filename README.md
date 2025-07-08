@@ -5,7 +5,7 @@ The name's **Floyd**, **Idia** or just **Parasite**. I'll answer to whatever ya 
 
 I've got this typing Quirk where I be randomly capitalizing some words, I tryna avoid it here but be Aware in case I feel like Talking to ya.
 
-**DNI if you're not Azul Ashengrotto, Divus Crewel or Il Dottore.** _Lovie is allowed here as well ig..._
+**DNI if you're not Azul Ashengrotto, Kenma Kozume, Divus Crewel or Il Dottore.** _Lovie is allowed here as well, i guess..._
 
 #### The Disgusting Truth;
 ![](https://files.catbox.moe/4den24.jpg)
