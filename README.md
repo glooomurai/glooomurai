@@ -9,14 +9,18 @@ I've got this typing Quirk where I be randomly capitalizing some words, I tryna 
 
 #### The Disgusting Truth;
 ![](https://files.catbox.moe/4den24.jpg)
-I like a lot of medias, not hiperfixated on anything specific Atm, but I enjoy topics such as *deep Sea creatures* and *microscopic organisms*, also Vampires, death and ghosts, everything creepy is Beautiful and morbid topics like rot, death and Cannibalism are sweet.
+I like a lot of medias, not hiperfixated on anything specific Atm, but I enjoy topics such as *different artistic Expressions*, *deep Sea creatures* and *microscopic organisms*, also Vampires, death and ghosts, everything creepy is Beautiful and morbid topics like rot, death and Cannibalism are sweet. Horror about mental hospitals, lobotomy and hallucinations is my Favorite. 
 
-Horror about mental hospitals, lobotomy and hallucinations is my Favorite. I hope it's needless to say, I Love the ugly, the fearsome and the horrific. I love **Fran Bow**, **DHMIS**, **Hikaru ga Shinda Natsu**, **Ordem Paranormal**, **RTGO**, **IWTV** and some *found footage horror movies*. 
+I hope it's needless to say, I Love the ugly, the fearsome and the horrific. but I also know how to Enjoy the cute, playful and Adorable sometimes! some medias I love talking about are **Fran Bow**, **DHMIS**, **Hikaru ga Shinda Natsu**, **House MD**, **Ordem Paranormal**, **Repo the Genetic Opera**, **TWST** and **IWTV**.
 
-But I also know how to enjoy the cute and adorable sometimes! I love children's shows like **Chiikawa**, **kid vampire** and **sakura cardcaptor**. I also really like *rhythm games*, **ganbare! Nakamura-kun**, **Saiki kusuo**, **Undertale**, **Deltarune**, **TWST** **mob Psycho 100** and **Haikyuu**!! I *mostly* read yaoi, But i also enjoy *yuri* and *hetero* couples. Both healthy and unhealthy.
+I also love children's shows like **Chiikawa**, **kid vampire** and **Cardcaptor Sakura**. I also really like *videogames* and *animanga* like **ganbare! Nakamura-kun**, **Saiki kusuo**, **Undertale**, **Deltarune**, **Enstars**, **mob Psycho 100**, **Death Note**, **YnM** and **Haikyuu**!! I *mostly* read yaoi, But i also enjoy some *yuri* and *hetero* couples. Both healthy and unhealthy.
 ![](https://files.catbox.moe/o3rqp1.jpg)
 #### The Self-Centered Freak;
-I am Azul Ashengrotto's one and true lover and Tartaglia's real brother. I'm both Floyd Leech and Idia Shroud IRL. Sometimes more Floyd or more Idia, sometimes I achieve some clarity and become normal. I dont have a proper diagnosis, but there's something really wrong with me besides the **autism** and **agoraphobia**. (the autism Is diagnosed for Ya nosy mF.) I've got those Weird mood shifts i Can't control properly, Beware before interacting.
+I've got some specific headcanons I'm not willing to Give up on, my faves are, mostly, all agender or Just unlabeled, I use any pronouns and Neopronouns for them as well. 
+
+i'm a monoshipper For some specific characters. (non-toxic, But i might get lil annoyed at Ya at first if It's anything revolving Azul.)
+
+I am Azul Ashengrotto's one and true lover and Tartaglia's real Brother. I'm both Floyd Leech and Idia Shroud IRL. Sometimes more Floyd or more Idia, sometimes I achieve some clarity And become normal.
 
 ![](https://files.catbox.moe/0g590c.jpg)
 
